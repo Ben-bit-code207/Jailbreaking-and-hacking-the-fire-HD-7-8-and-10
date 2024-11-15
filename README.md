@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ben-bit-code207
 - 👀 I’m interested in electronic devices
 - 🌱 I’m currently learning at my school
-- 📫 How to reach me via Email Kind.gast.famile@outlook.de via phone:+49 178 9056482 via Whatsapp:+49 178 9056482
+- 📫 How to reach me via Email Kind.gast.famile@outlook.de
 - ⚡ Fun fact: i did know very much about Operating Systems after my parents passed away when i was 9 at that time
